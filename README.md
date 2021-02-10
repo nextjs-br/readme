@@ -11,7 +11,7 @@ Sinta-se à vontade para perguntar e tirar dúvidas que possa ter no assunto. *N
 - Não promover assuntos que não sejam relacionados ao tema do grupo;
 - Não compartilhar PDF's, links, videos ou qualquer conteúdo pretegido sob a Lei dos Direitos Autorais.
 
-**🙋🏻‍♀️ Como contribuir:**
+**🙋🏼‍♀️ Como contribuir:**
 Também faça sua sugestão de uso, curso, tópico. Discuta, converse, leve a ideia pra frente. A proposta do grupo é botar em contato pessoas diferentes, com experiências diversas e relatos que possam agregar valor à essa profissão que tanto cresce.
 
 **🌈 Links úteis:**
